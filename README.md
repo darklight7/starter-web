@@ -21,4 +21,4 @@ Fork karo bhai
 retyuiu
 
 ##CopyWrite
-srdfdgfhjhkj
+srdfdgfhjhkj All rights reserved
